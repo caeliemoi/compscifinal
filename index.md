@@ -7,7 +7,7 @@
 **Grade:** 11
 
 **Picture:** 
-https://user-images.githubusercontent.com/66500459/83933321-83a71980-a775-11ea-8163-8cef630374ed.jpg
+![Image](https://user-images.githubusercontent.com/66500459/83933321-83a71980-a775-11ea-8163-8cef630374ed.jpg)
 
 ### Social Media:
 
