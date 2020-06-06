@@ -13,7 +13,7 @@ https://user-images.githubusercontent.com/66500459/83933321-83a71980-a775-11ea-8
 
 **Instagram:** @caeliemoi
 
-**Snapcha:** @caeliemoi
+**Snapchat:** @caeliemoi
 
 **Twitter:** @caeliemoi
 
